@@ -1,4 +1,4 @@
-
+escape tsunami for brainrots Script exclusive offers the most advanced escape tsunami for brainrots Script, with infinite resources and no cooldown.
 
 
 
